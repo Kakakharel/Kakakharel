@@ -1,0 +1,6 @@
+- 👋 Hi, I’m Kushal Kharel
+- 👀 I’m interested in Posting Historical, Entertainment, Agricultural, Religious and Techonological content in various Social Media Platform.
+- 🌱 I’m currently working as a Marketing Personal in various Marketing field.
+- 💞️ I’m looking to collaborate on different content for my ongoing project for Social Media Platform.
+- 📫 You can email me in my mailing address. kushal.kharel700@gmail.com
+- ⚡ New Days always give us New Lesson of our life.
